@@ -1,0 +1,1 @@
+# new_krisha_model
